@@ -1,0 +1,1 @@
+# smart-method-summer-training-part2
